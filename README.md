@@ -1,2 +1,0 @@
-HIPOTESIS: [Estefania Delfino-Primera Entrega_May'24_HIPOTESIS Y ABSTRACT.docx](https://github.com/estefaniadelfino/CoderPrimeraEntrega/files/15448993/Estefania.Delfino-Primera.Entrega_May.24_HIPOTESIS.Y.ABSTRACT.docx)
-CUESTIONARIO: [Estefania Delfino-Primera Entrega_May'24_CUESTIONARIO.docx](https://github.com/estefaniadelfino/CoderPrimeraEntrega/files/15448995/Estefania.Delfino-Primera.Entrega_May.24_CUESTIONARIO.docx)
